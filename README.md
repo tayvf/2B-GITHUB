@@ -6,3 +6,6 @@
 
  ## Voce entrar em contato comigo ##
 
+- talitavianaferreira506@gmail.com
+
+ ![](https://media1.tenor.com/m/P7cg7X4SPEoAAAAC/guy-sleeping-sleeping.gif)
